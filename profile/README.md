@@ -1,4 +1,4 @@
-## Hi there, and welcome to the Iris Collective! 👋
+## Hi there, we are Iris! 👋
 
 ### 😎 Who we are
 
